@@ -1,2 +1,2 @@
 # study
-bla bla bla
+kukukukuk
